@@ -1,0 +1,7 @@
+Nullus (I-{X})
+Tag # 1-01
+
+
+Mannequin-like humanoids native to [[Circle One - Intercircle Express]], found operating Level 1's trains. These entities while humanoid, exhibit few humanoid qualities. As trains observed throughout level 1 mimic real world trains, Drivers attire does as well. However, said attire varies heavily depending on the driver. Drivers of the same model may wear different clothing depending on the nation that specific model served for, with no observable pattern. These clothes are also in varying states of disrepair, but almost always complete. Although no Wanderer has yet reported a direct encounter with one of these drivers, hundreds have claimed sightings of patches mirroring real-world governments either long past or still active. 
+
+No more than a single driver has ever been observed operating a train outside of the cab at any given time. No matter the complexity or recommended crew count as manufactured, drivers will contain the physical ability to operate even modern and complex maglev trains alone. Drivers are also commonly seen, according to human public transportation workers, performing needless or non-sensical operations (Although the cabs equipment itself is replicated perfectly).
