@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: timekeeper-my-friend.github.io/quartz
+  baseUrl: timekeeper-my-friend.github.io/retributions-manifest
   ignorePatterns:
     - private
     - templates
