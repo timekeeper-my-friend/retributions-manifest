@@ -1,0 +1,19 @@
+%% This is an in-universe way of explaining the whole background of Manifest in a (generally) clear and concise way %%
+Research Statement #3042
+Author: Researcher Viscount Omega-3-H
+
+Hello, members of the MCI and possibly, if declassified, other readers. I write with a finding gathered via both research of the laws of Retribution's Manifest and interviews with members of other organizations, such as GRACE, the HHLR, Cain's Chosen, and the Wanderer's Coalition, among other smaller independent groups. The intelligence agencies (or religious fanatics) of these groups have all done separate, independent tests to find these answers.
+
+God is dead. This may come as a shock, firstly, for the fact that He is real, and secondly, that He has passed away. The Bible was more of a posthumous analysis of what could've went differently, than a religious text. According to all the research I have done, this is the story of what happened. God created the universe about 13 billion years ago. After about 7 billion years, the Earth forms and He seeds it with life once it has enough liquid water. Once the first humans are born, evolved from primates, He allows them a place of refuge, that place being the Garden of Eden. The serpent arrives, and tries to trick the two humans, named Adam and Eve. The serpent does not manage to trick the humans and leaves. Humanity is allowed to stay within the Garden of Eden, until Cain kills Abel and gets humanity removed from Eden. Eventually, humanity begins to flourish once more. God sees cities such as Sodom and Gomorrah, and wars between his created people. In order to purify his subjects, god sends a great plague, known as the Second Divide. Many angels grow displeased with gods punishment of his subjects, and believe that wicked acts should manifest after death (Angels such as Lucifer, Abaddon, Beelzebub, and Azazel) In order to incite rebellion against god, a serpent is sent to Noah, and convinces him of the idea of the Tower of Babel. God does not notice in time, and with the serpent on their side, humanity begins a battle against the angels. This is known as the War of Retribution. Eventually, the humans win. Noah plunges a ceremonial dagger into the Heart of God. He enacts the 11 Commandments in revenge against his subjects. These commandments read as follows:
+1. I am the Lord your God; thou shalt have no other gods before me. 
+2. Let not False gods or usurpers hold dominion in human hearts.
+3. Remember the sabbath day, to keep it holy; for Sabbath be the day of the Sealing of the Unholy.
+4. Thou shall honor your father and your mother. They created thee, as I hath created them.
+5.  Thou shall not kill the Just. To kill another of Holy Light, is to taint the soul. 
+6.  Thou shall not commit adultery. To court while in covenant, is to taint the soul
+7.  Thou shall not steal. To raid, to pirate, is to taint the soul
+8.  Thou shall not bear false witness against your neighbor. The eye shall lead thine soul astray.
+9.  Thou shall not covet your neighbor’s wife. To seek a bond beyond the Holy Bond, is to taint the soul
+10. Thou shall not covet your neighbor’s goods. To steal is to taint the soul
+11. To taint the soul, is to be sentenced to Retribution's Manifest.
+These laws enacted by god were to create the Manifestation, a realm of the fractured consciousness of millions, encapsulating the fears, doubts, hopes, and dreams of gods creations in its limitless form. The manifestation finds, and enacts judgement on God's usurpers. The judge of the dead, Gabriel, has gone insane with thousands of years of simply being alone. This has caused him to send both living and dead to Manifest, and to send those who have not broken the 10 Commandments (not including the 11th), but have committed petty acts to Manifest.
